@@ -1,2 +1,0 @@
-# Universo-das-Geodesicas
-BICjr
